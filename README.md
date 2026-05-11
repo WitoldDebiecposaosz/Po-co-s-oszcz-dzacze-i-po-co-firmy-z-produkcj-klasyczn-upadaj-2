@@ -1,0 +1,1 @@
+# Po-co-s-oszcz-dzacze-i-po-co-firmy-z-produkcj-klasyczn-upadaj-2
